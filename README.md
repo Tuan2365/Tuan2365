@@ -1,5 +1,5 @@
 - 👋 Xin chào,Tôi là Nguyễn Anh Tuấn
-- 👀 Học lớp 10A6
+- 👀 Học lớp ×××
 - 🌱 TTGD và Đào tạo nhân tài:)
 - 💬 Haha
 - 📫 FB:Nguyen Anh Tuan
